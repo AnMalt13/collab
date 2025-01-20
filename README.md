@@ -1,3 +1,1 @@
 #collaboration
-
-мяу мяу мяу
